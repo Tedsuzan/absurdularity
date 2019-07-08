@@ -1,2 +1,2 @@
-# absurdularity
+# Absurdularity
 Philosophy book
