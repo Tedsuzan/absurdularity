@@ -34,12 +34,34 @@ What can the meat calc do, what can it ruin, & how fast can it do it? (the calc 
 
 # Ch 1 Epistemology: How to Boot Up Your Meat Calculator
 
+Turning on the met calc
+
+congrats on buying your new device!
+
+medium post epistemology
+
+Translate into calc screens
+
+the more genuine think-therefore I am
+
+Required to use your device
+
 # Ch 2 Ethics
 
 Anti enthusiasm
 from Schop > Ted Suzan
 
 (How to correctly press the buttons)
+
+you can't win with enthusiasm
+
+the will/ selflessness
+
+Bill the enthusiastic banker story (in notes?)
+
+Shame
+
+Don't ignore the battery that powers the machine
 
 # Ch 3 Absurdism and the Aesthetics of the Absurd
 
