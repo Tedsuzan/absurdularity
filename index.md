@@ -5,6 +5,24 @@
 # Introduction
 What is the absurdularity/ultimate path of the meat calc's development
 
+FB Quotes on the Absurdularity
+
+* No matter the level of tech acceleration, meaning itself is and will be challenged at an unprecendented rate
+
+white lies/social structures
+physical strength and gender roles
+longevity
+fertility
+cross species stuff
+machine learning
+(simulations) simulating yourself and others
+cloning/pets
+3d printing
+vr (networking/escapism)
+
+What can the meat calc do, what can it ruin, & how fast can it do it? (the calc that ruined everything)
+
+
 # Ch 1 Epistemology: How to Boot Up Your Meat Calculator
 
 # Ch 2 Ethics
