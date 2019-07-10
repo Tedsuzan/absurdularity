@@ -34,6 +34,8 @@ What can the meat calc do, what can it ruin, & how fast can it do it? (the calc 
 
 # Ch 1 Epistemology: How to Boot Up Your Meat Calculator
 
+https://medium.com/@tedsuzan/an-abbreviated-take-on-my-view-of-epistemology-f5d691e4b003
+
 Turning on the met calc
 
 congrats on buying your new device!
